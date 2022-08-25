@@ -1,1 +1,0 @@
-# adstoclick.tk
